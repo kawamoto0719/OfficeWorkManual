@@ -1,3 +1,0 @@
-aso
-
-tatu
